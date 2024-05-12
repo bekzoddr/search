@@ -1,0 +1,1 @@
+malumotla apidan olingan style 1:1 qilingan cardga like bossa wishlistga o'tadi titlega bossa single pagega o"tadi media sal pal qilingan search ishlidi search qilingan mahsulotga bossa single pagega o'tkazadi o'tgandan keyin search qilingan malumotla paneli yopiladi load more bor loadingla qo'yilgan
